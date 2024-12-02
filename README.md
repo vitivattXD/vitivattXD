@@ -1,6 +1,1 @@
-- 👋 Hi, I’m @vitivattXD
-- 👀 I’m interested in coding to make custom linux pro kernel
-- 🌱 I’m currently learning anything
-- 💞️ I’m gay
-- 😄 Pronouns: gay bear
-- ⚡ Fun fact: i'm furry artist
+- 👋 Hi fuck off
